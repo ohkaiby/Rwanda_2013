@@ -1,3 +1,27 @@
+### 4/30 Update:
+We finished both conferences in addition to teaching English for two 1.5-hour night sessions. I'm boarding the plane back in 8 hours!
+
+The hunger of those pastors is amazing. I don't think I fully comprehend their thankfulness for us being there and spending time with them. Not only did they receive a lot of teaching from Dr. Fuder/Rene Alvarado/Pastor Blessed regarding unity, forgiveness, growth, stress, and leadership, but they also broke some of the barriers of mistrust between them during the discussions regarding the struggles they go through as pastors.
+
+Because they were able to meet in the neutral setting that we provided, they were able to open themselves up to each other without worry of fear or condemnation. There was a powerful time of prayer during the second day of conference in the Eastern province of Nyagatare that I think specifically placed a ”mark” of remembrance [See Joshua 4:4–7] on their hearts that they can look back on as they strive to trust one another.
+
+We were also able to donate a copy of the new Kinyarwandan translation of the bible to each family in the Pastor's Family Fellowship. I've never seen people so joyful about receiving a bible in the states. They looked like kids getting video games on Christmas. Some were kissing their new gifts.
+
+The classes were interesting. I think this was the first time I've seen children eager to go to a class. We ended up teaching some basics, some of which they already knew. We taught them colors (red, blue, yellow, pink, etc.), some vocab (boy, girl, star, belt, watch, shirt, door, window, open, closed, etc.), greetings (“Hello,” “How are you?”, “Goodbye”, “Come,” “Go,” etc.), and some grammar (“and,” plural vs. singular, etc.). Most of the people in the classroom were children ranging from 5 to 10, while others were teenagers / young adults / parents. I'm not sure how big of an impact we had, but we did get to share a little bit of the gospel before we left. We also donated teaching materials (flash cards and crayons) to the teachers at the school.
+
+Overall, I think God used us in Rwanda more than we think and in ways that we didn't intend. I think that what we did is a very strategic way of impacting the churches here, since the pastors here don't even have that much training. They take any training / teaching that they get and use it so effectively.
+
+I'd tell you more about our experiences visiting the memorial sites, but that will have to wait (I'm out of time).
+
+#### Some notes:
+* Rain comes hard and fast during the rainy season, but only lasts for an hour or two at most.
+* The dirt turns from red to green when it rains. This is due to the spores / seeds that have already spread.
+* “African” time is a more extreme form of “Asian” time.
+* They take good care of their grass. People are not allowed to walk on it.
+* Their drivers are really good.
+* The sun is only up 12 hours per day (6AM to 6PM).
+* The words at the genocide memorial in Ntarama says “Iyo umenya nawe ukimenya ntube waranyishe” which means ”If you knew who I was and who you are, you would not have killed me.”
+
 # Some Notes from Rwanda - April 22-26
 So far I've only served at the two Unity Conferences in Nyagatare and Kigali for the Rwandan pastors. There's too much for me to put into formal writing at the moment, so you get to read my shorthand notes. I intend to make a presentation (both live **and** online). Here's what I've learned so far.
 
@@ -34,8 +58,8 @@ So far I've only served at the two Unity Conferences in Nyagatare and Kigali for
 ## Struggles of Rwandan Pastors
 
 ### Poverty
-* physical - they don't get a salary. live day by day.
-* spiritual - they feel inadequate in leading their flocks, lack of teaching. Kind of just thrown into the field with an expectation to “figure it out.”
+* physical — they don't get a salary. live day by day.
+* spiritual — they feel inadequate in leading their flocks, lack of teaching. Kind of just thrown into the field with an expectation to “figure it out.”
 
 ### Rivalry / Lack of Unity
 * can't really meet together w/ other pastors because of lack of trust. ulterior motives.
