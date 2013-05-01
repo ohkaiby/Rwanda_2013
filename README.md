@@ -20,7 +20,7 @@ I'd tell you more about our experiences visiting the memorial sites, but that wi
 * They take good care of their grass. People are not allowed to walk on it.
 * Their drivers are really good.
 * The sun is only up 12 hours per day (6AM to 6PM).
-* The words at the genocide memorial in Ntarama says “Iyo umenya nawe ukimenya ntube waranyishe” which means ”If you knew who I was and who you are, you would not have killed me.”
+* The words at the genocide memorial in Ntarama says “Iyo umenya nawe ukimenya ntube waranyishe” which means “If you knew who I was and who you are, you would not have killed me.”
 
 # Some Notes from Rwanda - April 22-26
 So far I've only served at the two Unity Conferences in Nyagatare and Kigali for the Rwandan pastors. There's too much for me to put into formal writing at the moment, so you get to read my shorthand notes. I intend to make a presentation (both live **and** online). Here's what I've learned so far.
